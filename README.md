@@ -90,3 +90,6 @@ FoodHub is dedicated to creating a positive experience with every order. From pe
 As FoodHub continues to innovate and grow, we remain committed to transforming the food ordering experience. By merging technology with culinary arts, we aim to create a dynamic ecosystem that nourishes our users and connects them to their favorite food. Our platform not only meets modern consumer demands but anticipates future trends, ensuring that we remain at the forefront of the online food delivery industry.
 
 Join us on this culinary journey as **FoodHub** reshapes the way individuals experience food ordering, ensuring that delightful and satisfying meals are always within reach. With a commitment to quality, diversity, and user satisfaction, we firmly believe that FoodHub will become your go-to platform for all your culinary cravings. Let us take the stress out of dining and put the joy back into mealtime! 🍽️✨
+
+
+![image](https://github.com/user-attachments/assets/b6853bb7-b0ec-49a2-a381-7870fce68ee2)
