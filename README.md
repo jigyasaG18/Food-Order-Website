@@ -91,5 +91,20 @@ As FoodHub continues to innovate and grow, we remain committed to transforming t
 
 Join us on this culinary journey as **FoodHub** reshapes the way individuals experience food ordering, ensuring that delightful and satisfying meals are always within reach. With a commitment to quality, diversity, and user satisfaction, we firmly believe that FoodHub will become your go-to platform for all your culinary cravings. Let us take the stress out of dining and put the joy back into mealtime! 🍽️✨
 
+![image](https://github.com/user-attachments/assets/31a7d37e-2f06-4a9e-b9f3-2ea1da655c02)
 
-![image](https://github.com/user-attachments/assets/b6853bb7-b0ec-49a2-a381-7870fce68ee2)
+![image](https://github.com/user-attachments/assets/f9768f2c-23e5-4641-ade7-f0cbfcff2b68)
+
+![image](https://github.com/user-attachments/assets/709c896c-f360-4565-a78d-72cbb6be9f92)
+
+![image](https://github.com/user-attachments/assets/6f0ae545-377d-4715-8782-3960b9566291)
+
+![image](https://github.com/user-attachments/assets/43b5bbec-41b5-4897-9fb3-db093f837f63)
+
+![image](https://github.com/user-attachments/assets/a70e9ca2-f01c-446b-94c9-e6a2145332d0)
+
+![image](https://github.com/user-attachments/assets/bb7b9535-88c1-41f4-80e8-40e2d3568b0e)
+
+![image](https://github.com/user-attachments/assets/6c5b90c6-8028-4dbc-85f1-4089a6183136)
+
+![image](https://github.com/user-attachments/assets/4dc862e9-c72e-42c2-a70b-9c44f04d077a)
